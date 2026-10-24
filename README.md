@@ -1,4 +1,4 @@
-# 🧬 Aliyu-Haidar Abubakar Tanimu
+# 🧬 Aliyu-Haidar Abubakar Tanimu (Haidar_Genomics
 ### *Future Professor of Biochemistry | Computational Biologist / Bioinformatician | Genomics Researcher*
 
 <p align="left">
